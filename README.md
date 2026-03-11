@@ -1,1 +1,0 @@
-# SmartFitness-AI
